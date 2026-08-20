@@ -1,0 +1,2 @@
+# SIGED-certificado-preparatoria-autenticacion-CULA020131HDFRMNA1
+CULA020131HDFRMNA1
